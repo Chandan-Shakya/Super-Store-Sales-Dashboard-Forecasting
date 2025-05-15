@@ -65,7 +65,7 @@ I'm a passionate data enthusiast aiming for opportunities in the field of **data
 
 Feel free to connect with me for collaboration or job opportunities:
 
-📧 Email: [your.email@example.com]  
+📧 Email: [dataanalystchs@gmail.com]  
 📍 Location: [Gwalior,India]
 
 ---
